@@ -1,1 +1,0 @@
-# ja-jreno.github.io
